@@ -2,7 +2,7 @@
 
 ---
 
-### 📩**Message me on [Telegram](https://t.me/crypto_scem) to buy the full backend + frontend clean source codes**
+### 📩 **Message me on [Telegram](https://t.me/crypto_scem) to buy the full backend + frontend clean source codes**
 
 ---
 
@@ -15,7 +15,7 @@
 
 ---
 
-## Showcase: https://youtu.be/oUZK8YJpydQ
+## 💎 Showcase: https://youtu.be/oUZK8YJpydQ
 
 ---
 
